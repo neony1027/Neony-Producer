@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Neony-Producer
+- 👋 Hi, I’m @Neony
 - 👀 I’m interested in making musics & programming
 - 🌱 I’m currently learning mixing & sound making & C
 - Please search Neony on Apple music, Spotify, tidal music, Pandora, and more..!
